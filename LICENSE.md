@@ -1,4 +1,4 @@
-
+Experience oil empire like never before with hidden Script for oil empire, the #1 Script. Includes aimbot and unlimited stamina for unbeatable
 
 
 
